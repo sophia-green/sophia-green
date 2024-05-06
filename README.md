@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sophia-green
 - 👀 I’m interested in basketball
-- 🌱 I’m currently learning in a gymnasium
+- 🌱 I’m currently learning in 6.clas
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me per e mail
 - 😄 Pronouns: she/her
